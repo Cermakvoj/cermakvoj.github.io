@@ -1,9 +1,7 @@
 ---
 layout: post
-title: Limes Romanum na Moravě!
+title: Římané na Moravě - hosté či domácí?
 ---
-
-## Římané na Moravě - hosté či domácí? ##
 
 Značná část české odborné veřejnosti se dodnes pře o to, zda Římané na našem území pobývali pouze krátkodobě při přesunu svých vojsk 
 v rámci bojů s Germány. Za severní hranici jejich vlivu bývala často považována řeka Dunaj, nad kterou se podle většiny 
