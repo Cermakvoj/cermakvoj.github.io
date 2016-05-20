@@ -1,9 +1,8 @@
 ---
 layout: post
-title: Limes Romanum na Moravě!
+title: Římané a Germáni v okolí Brna
 ---
 
-## Římané a Germáni v okolí Brna ##
 
 V roce 2009 archeologové objevili nedaleko Brna v Pasohlávkách pozůstatky někdejšího římského lazaretu. Jedná se dokonce pravděpodobně 
 o největší památku tohoto druhu severně od Dunaje . 
