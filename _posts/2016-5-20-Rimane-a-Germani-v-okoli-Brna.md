@@ -24,3 +24,6 @@ Jedná se o nezapomenutelnou příležitost připomenout si, že tito jedinci ne
 ale že měli také bohatou kulturu, která nás má dodnes velký potenciál inspirovat.
 
 
+Zdroje:
+[Tyden.cz, Věda a technika](http://www.tyden.cz/rubriky/veda-a-technika/archeologove-odkryvaji-u-novych-mlynu-rimsky-lazaret_131226.html?showTab=nejctenejsi-3/)
+[Rmm.cz, Expozice](http://www.rmm.cz/czech/expozice_rmm.html#rimane/)
