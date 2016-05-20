@@ -21,5 +21,5 @@ v okolí Brna. Vydejte se s námi na exkurzi do minulosti mezi římské bojovn�
 
 
 Zdroje:
-[Moje Brno](http://mojebrno.jecool.net/inka--morava-rimane.html/)
+[Moje Brno](http://mojebrno.jecool.net/inka--morava-rimane.html)
 [Řím.me.cz](http://rim.me.cz/cisarove/marcus_aurelius/marcus_aurelius.php/)
